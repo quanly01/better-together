@@ -1,2 +1,2 @@
 # better-together
-It always better when we are together
+It's always better when we are together
