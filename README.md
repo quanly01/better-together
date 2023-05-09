@@ -65,7 +65,7 @@ Step 5: update from the review and do it again.
 This is the process:
 
 <p align="center" id="figure-1">
-<img src="process.png" width="49%" alt="The Process">
+<img src="process.png" width="80%" alt="The Process">
 </p>
 <p align="center"> Image 1 - Process </p>
 		
@@ -96,7 +96,7 @@ And then: Do ⟶ Review ⟶ Update.
 This how it looks like:
 
 <p align="center" id="figure-2">
-<img src="Concept map.png" width="70%" alt="Concept Map">
+<img src="Concept map.png" width="100%" alt="Concept Map">
 </p>
 
 **IV. Apply model to real life and my life**
@@ -114,7 +114,7 @@ Review:    Your friends and you, remember REVIEW INCLUDE YOU.
 Update:    Listen to your friend’s feedback and practice what you need to improve.
 
 But do you think about a scenario where you don’t have some close friends yet. What should you do? So again:
-
+<br>
 Example 2: How to have close friends.
 
 Problem:  Need to have close friends.
