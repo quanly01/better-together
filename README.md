@@ -115,6 +115,8 @@ Update:    Listen to your friend’s feedback and practice what you need to impr
 
 But do you think about a scenario where you don’t have some close friends yet. What should you do? So again:
 <br>
+<br>
+<br>
 Example 2: How to have close friends.
 
 Problem:  Need to have close friends.
