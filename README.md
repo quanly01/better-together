@@ -5,7 +5,8 @@
 Have you ever felt tired and alone inside the dark clouds of your life and career? 
 You feel like a storm is going to sweep you out the circle of 
 your life and make you bend your knee? Don't worry, 
-you are not alone in this journey, go with me and together we will become better with 5 steps.
+you are not alone in this journey, 
+go with me and together we will become better with 5 steps.
 “Better Together” is a life motto. It is not only "the secret" to working and studying better,
 but also a lifestyle, 
 a guiding star that leads us to a happier and more beautiful life.
