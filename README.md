@@ -113,8 +113,9 @@ Review:    Your friends and you, remember REVIEW INCLUDE YOU.
 
 Update:    Listen to your friend’s feedback and practice what you need to improve.
 
-But do you think about a scenario where you don’t have some close friends yet. What should you do? So again:
-<br>
+But do you think about a scenario where you don’t have some close friends yet. What should you do? 
+
+So again:
 <br>
 <br>
 Example 2: How to have close friends.
