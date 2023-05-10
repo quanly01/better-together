@@ -1,5 +1,5 @@
 # Better Together: The First Journey
-##### you can read here or go to file better_together_newest_update.pdf 
+##### still in progress 
 
 **I. Introduction**
 
