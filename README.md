@@ -197,7 +197,7 @@ Contact me at:
 
 The last thing I want to say is:
 
-Thanks to my lovely mum (Quach Thi Ha), my patient dad (Nguyen Chi Que), my younger brother (Nguyen Duc Lam), my best friend (Tran Quang Khoi), my mentors (Quach Thi Thu Thuy, Nguyen Xuan Long. Nguyen Binh Minh), my inspirations(Andrew Ng, Nguyen Ngoc Bao Han, Judy Robinett), my brother in arms (Dinh Tien Dung), my partners (Nguyen Thi Khanh Linh, Nguyen Hoang Giang, Tran Thi Nhu Quynh), my teachers (Nguyen Thi Hong Minh, Nguyen Ngoc Phan, Le Hoang Son), my relatives (Nguyen Phuong Nguyen, Quach An Khanh, Thuc Nguyen, Lily Nguyen, Nguyen Minh Anh, Quach Thi Thanh An, Bui Quynh Huong), all of my friends and all people around me make my 21 years experienced so grateful. 
+Thanks to my lovely mum - Q.T.H, my patient dad - N.C.Q, my younger brother - N.Đ.L, my best friend - T.Q.K, my mentors– Q.T.T.T, N.X.L, N.B.M, my inspirations - N.N Bảo Hân, Andrew, Judy, PG 13, my brother in arms - Đ.T.D, my partners - N.T.K.L, N.H.G, T.T.N.Q, my teachers - N.T.H.M, N.N.P, L.H.S, my relatives - N.P.N, Q.A.K, T Nguyen, L Nguyen, N.M.A, Q.T.T.A, B.Q.H, all of my friends and all people around me make my 21 years experienced so grateful. 
 
 I hope you had a happy journey when we are going together. Hope you have more positive energy to embark on new journeys with the one you trust, as well as with new friends to become better and more fun together in these adventures. Thank you for going with me on this journey. Thank you for spending time on my story.
 
